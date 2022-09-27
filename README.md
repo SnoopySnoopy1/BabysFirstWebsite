@@ -3,4 +3,4 @@ hello
 can you hear me
 mi nombre es shreyas
 hola
-![Walt](https://www.sickchirpse.com/wp-content/uploads/2016/05/Walter-White-1.jpg) 
+![Walt](http://www.magicalears.com/clipart/Winnie%20the%20Pooh%20and%20Friends/Pooh/pooh007.gif) 
