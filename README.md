@@ -4,7 +4,7 @@ Why hello there!
 This is HFIBI, an exeedingly awkward acronym for "History for Idiots, By an Idiot". Basically, we go over history in a simple to understand way. 
 
 
-##World War I
+## World War I
 Most people know the general story of WWII, but not many people know its predecessor, the "War to end All Wars" (it wasn't). WWI is many years in the making, and so we go back to 187. 
 A dude named  Otto von Bismarck wanted to unify Germany (it was split into a bunch of smaller nation states). So, he started a war against France to reclaim the Alsace-Lorraine. This area will become important later. But since all the German states were excited about getting back this area from France, our friend Otto could leverage the war to unify Germany. Germany stomped France, which made France angry. Now, Germany was surrounded on two sides by France and Russia. Our boy Otto didn't like this, and tried to stop this from occuring. Otto made an alliance with Italy and Austria-Hungary, and made peace with russia as well. 
 
