@@ -14,3 +14,5 @@ Now here is where tensions reach a breaking point. Italy and the Ottoman Empire 
 
 Then someone died. A group called "The Black Hand" in Serbia wanted Austria to give up land to Serbian control to unite ethnic groups. So, in Sarajevo in 1914, a man named Gavrilo Princip tried to kill Franz Ferdinand, the archduke of Austria-Hungary. He threw a bomb, and it missed. Franz Ferdinand was shocked, but unhurt. Then this man went to visit the injured officers in the assasination attempt ON HIM. Instead of high tailing it out of the country, Franz the genius decided to drive around. In an open top car. Then his driver took a wrong turn. Onto a street where, I kid you not, Gavrilo Princip was sitting. Princip then 
 shot and killed Ferdinand. 
+
+Austria-Hungary was pretty mad. They sent a bunch of demands to Serbia, who told them to shut it. 
